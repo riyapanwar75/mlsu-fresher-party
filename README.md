@@ -1,0 +1,1 @@
+# mlsu-fresher-party
